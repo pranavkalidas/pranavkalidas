@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about anything expect politcs.
 - 📫 How to reach me: Twitter/Whatsapp/India P.O
 - 😄 Pronouns: 
-- ⚡ Fun fact: I am NarendraModi
+- ⚡ Fun fact: 
 -->
