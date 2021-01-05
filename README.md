@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about Desh Badal raha hai age bad raha hau
 - 📫 How to reach me:
 - 😄 Pronouns: 
-- ⚡ Fun fact: 
+- ⚡ Fun fact: I am Narendra Modi
 -->
