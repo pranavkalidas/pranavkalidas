@@ -5,11 +5,11 @@
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on #Mission#To#Mars
-- 🌱 I’m currently learning nothing for a while
-- 👯 I’m looking to collaborate on PM Kisan Yojana
-- 🤔 I’m looking for help with Mahaghatbandhan
-- 💬 Ask me about anything expect politcs.
-- 📫 How to reach me: Twitter/Whatsapp/India P.O
+- 🌱 I’m currently learning
+- 👯 I’m looking to collaborate
+- 🤔 I’m looking for help with 
+- 💬 Ask me about 
+- 📫 How to reach me:
 - 😄 Pronouns: 
 - ⚡ Fun fact: 
 -->
